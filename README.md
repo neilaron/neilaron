@@ -1,4 +1,4 @@
-### Hi there 👋 I'm new here in Github. ⚡ Fun fact: I am funny and friendly!
+### Hi there 👋 I'm new here in Github. ⚡ Fun fact: I am funny and friendly! ⚡ My hobby is I like to draw.
 
 <!--
 **neilaron/neilaron** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
